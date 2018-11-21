@@ -1,1 +1,0 @@
-# jonrysimbolon.github.io
